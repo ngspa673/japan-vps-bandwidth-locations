@@ -1,0 +1,1 @@
+# japan-vps-bandwidth-locations
